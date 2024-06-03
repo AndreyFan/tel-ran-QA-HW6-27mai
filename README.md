@@ -1,0 +1,1 @@
+# tel-ran-QA-HW6-27mai
